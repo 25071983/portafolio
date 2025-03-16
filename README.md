@@ -14,4 +14,4 @@
 
 ###Cristina Perez
 
-### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/cristina-perez-mardones-471572173/)
+### Linkedin:(https://www.linkedin.com/in/cristina-perez-mardones-471572173/)
